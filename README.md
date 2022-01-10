@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Rabiaakbulut
-- 💻 I am a fourth year computer engineering student
+- 💻 I'm fourth year computer engineering student
